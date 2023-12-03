@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Pradeepp09
-- 👀 I’m interested in coding and graphic design. 
 - 🌱 I’m currently learning different coding language. 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me pradeepparaskar143@gmail.com
